@@ -3,3 +3,5 @@ Be prepared to ask questions where necessary so that I make sure I understand th
 Start working on projects as soon as possible.
 Work on projects in any spare time between homework assignments.
 Shoutout to Caden for helping me explain the Git workflow and practicing with me.
+Working with Amelia! Awesome.
+Working with Caden was cool too.
